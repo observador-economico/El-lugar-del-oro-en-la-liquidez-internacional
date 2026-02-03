@@ -1,1 +1,3 @@
 # El-lugar-del-oro-en-la-liquidez-internacional
+Se critica a menudo el sistema monetario internacional por el hecho de que se apoya más, para la cancelación de los pagos, sobre el empleo de divisas (dólares y libras) que sobre el oro. Francia hizo saber incluso, a comienzos de febrero de 1965, que no aceptaría más divisas extranjeras en pago de excedentes netos. 
+The international monetary system is often criticized for relying more on foreign currencies (dollars and pounds) than on gold for the settlement of payments. France even announced, in early February 1965, that it would no longer accept foreign currencies in payment of net surpluses.
